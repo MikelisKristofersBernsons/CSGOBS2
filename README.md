@@ -1,2 +1,2 @@
-# https://mikeliskristofersbernsons.github.io/CSGOBS/
+# https://mikeliskristofersbernsons.github.io/CSGOBS2/
  
